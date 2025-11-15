@@ -27,6 +27,6 @@ This portfolio highlights:
 
 ## 📬 Contact
 👩‍💻 **Hema Priya Kuppireddy**  
-📧 hemapriyareddy05@gmail.com  
-🔗 LinkedIn: *Add your link here*
+📧 khemapriya214@gmail.com  
+
 
